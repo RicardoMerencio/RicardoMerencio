@@ -1,4 +1,4 @@
-Meu nome é Ricardo Merencio
+Meu nome é **Ricardo Merencio**
 
 Estou estudando na Alura
 Estou me desenvolvendo na linguagem JavaScript
