@@ -10,5 +10,5 @@ Você pode entrar em contato comigo 📫
 
 @ricardo.merencio
 
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fkaiser-rpg-kaiser-desconjura%25C3%25A7%25C3%25A3o-cellbit-kaiser-cellbit-gif-21687463&psig=AOvVaw1_mDdxEwjOFX-MI-SVgsLG&ust=1715079673975000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCLitkOjv-IUDFQAAAAAdAAAAABAK]
+![https://tenor.com/pt-BR/view/kaiser-rpg-kaiser-desconjura%C3%A7%C3%A3o-cellbit-kaiser-cellbit-gif-21687463].
 
